@@ -8,7 +8,6 @@
 
 - 📫 How to reach me **rekotamer4@gamil.com**
 
-- ⚡ Fun fact **SRK And Kajol❤️**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
